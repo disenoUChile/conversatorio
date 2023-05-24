@@ -4,9 +4,9 @@
 
 ### https://disenouchile.github.io/conversatorio/
 
-#### Lunes 29 de mayo - 11:30 hrs.
+#### :calendar: LUNES 29 DE MAYO - 11:30 hrs.
 
-#### AUDITORIO - FAU/UCH
+#### :microphone: AUDITORIO - FAU/UCH
 
 **PARTICIPAN**
 
