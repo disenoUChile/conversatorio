@@ -10,7 +10,7 @@
 
 **PARTICIPAN**
 
-- **[Paz Peña](https://pazpena.com/)**. Autora del libro *[Tecnologías para un planeta en llamas](https://www.planetadelibros.cl/libro-tecnologias-para-un-planeta-en-llamas/376383): Los peligros del tecnocapitalismo y la necesidad de una transición digital justa en la era de la crisis climática y ecológica*. La autora dedica su investigación más reciente a comprender los impactos socioambientales de la digitalización, su relación con las energías verdes y el papel que tiene América Latina en este escenario. Más información en [pazpena.com](https://pazpena.com/) y [terraforminglatam.net](https://terraforminglatam.net/)
+- **[Paz Peña](https://www.planetadelibros.cl/autor/paz-pena/000058367)**. Autora del libro *[Tecnologías para un planeta en llamas](https://www.planetadelibros.cl/libro-tecnologias-para-un-planeta-en-llamas/376383): Los peligros del tecnocapitalismo y la necesidad de una transición digital justa en la era de la crisis climática y ecológica*. La autora dedica su investigación más reciente a comprender los impactos socioambientales de la digitalización, su relación con las energías verdes y el papel que tiene América Latina en este escenario. Más información en [pazpena.com](https://pazpena.com/) y [terraforminglatam.net](https://terraforminglatam.net/)
 
 - **[Lorna Lares](https://www.uchile.cl/portafolio-academico/portafolio-academico/academico/57067-Lorna-Lucila-Lares-L%C3%B3pez)**. Académica del Departamento de Diseño, FAU, Universidad de Chile. Diseñadora Industrial de la Universidad de Chile y Master of Art in Design Futures en Goldsmiths, University of London.
 
