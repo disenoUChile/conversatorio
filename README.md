@@ -19,3 +19,5 @@
 ORGANIZA: [AUD5V001-2 - Primer Semestre 2023](https://www.u-cursos.cl/fau/2023/1/AUD5V001/2/datos_curso/)
 
 COLABORA: [Dirección de Extensión y de Vinculación con el Medio, FAU/UCH](https://fau.uchile.cl/extension)
+
+MÁS INFORMACIÓN: felipe.cortez@uchile.cl
